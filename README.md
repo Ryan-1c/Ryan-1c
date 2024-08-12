@@ -5,4 +5,5 @@
 - em Osasco/SP estou aprendendo a utilizar o alura
 - meu sonho é que o corinthians ganhasse um libertadores
 - nas minhas horas vagas gosto de ver notícias sobre o corinthians
-- 
+- contanto ( 00001128307856sp@al.educacao.sp.gov.br)
+- ![](
